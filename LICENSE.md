@@ -1,4 +1,4 @@
-#  
+#  Experience 3008 like never before with 3008 Script smart, the #1 Script. Includes auto-sell and one-hit kill for unbeatable performance.
 
 
 
